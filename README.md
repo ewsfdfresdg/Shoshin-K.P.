@@ -2,4 +2,6 @@
 
 https://docs.google.com/document/d/19ns4lbp48qBILM_OOyH2EOydsqwaJ-7LztfOcgaf4KY/edit?usp=drive_link
 
+https://docs.google.com/document/d/1Oid4-NHleWOs2Y1PIsItoYQsGdvsDEJWKz0vono4ka4/edit?usp=drive_link
+
 
