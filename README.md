@@ -27,3 +27,5 @@ https://docs.google.com/document/d/1DNlDJ7cj8oxG4XmT4mOnBMEZ8k2rzATwOqVxBFM9xMY/
 https://docs.google.com/document/d/1fC9hsWWAoU4eFgBecoaW5LhpZQS5FXJdDte15LmjNSQ/edit?usp=drive_link
 https://docs.google.com/document/d/1qs-g2FBvhaxFwIoeS066Bt46al1OLJutEFjT4E4vij8/edit?usp=drive_link
 https://docs.google.com/document/d/1NzybLErUGOiz1dQVLJljEfYM-xQtI60jTMOSOjBT1nE/edit?usp=drive_link
+https://docs.google.com/document/d/1AHmfOJa4V_I57h8qu0LfMqvX4wovlYFAU-N_FxVFmZI/edit?usp=drive_link
+КОНТРОЛЬНАЯ РАБОТА - https://docs.google.com/document/d/10AHY8iH0DVl_vXnLOJ1bYdXNFNnr6Y8p04DlDlmrxkg/edit?usp=drive_link
